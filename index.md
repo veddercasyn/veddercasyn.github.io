@@ -14,10 +14,14 @@ My professional experience is primarily from working as an athletic trainer at P
 
 I graduated with a degree in Kinesiology from the University of Illinois at Urbana-Champaign. Go Illini!
 
+I was involved with the following organizations:
+* Delta Tau Delta
+* Climbing Club
+* Illini Taekwondo Club
+
 ### Certifications
 
 I hold the following certifications
-
 * CPR, Red Cross
 * ACSM Certified Personal Trainer, American College of Sports Medicine
 * ACE Certified Personal Trainger, American Council on Exercise
