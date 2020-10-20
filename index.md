@@ -14,7 +14,7 @@ My professional experience is primarily from working as an athletic trainer at P
 
 I graduated with a degree in Kinesiology from the University of Illinois at Urbana-Champaign. Go Illini!
 
-### Certifactions
+### Certifications
 
 I hold the following certifications
 
