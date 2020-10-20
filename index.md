@@ -13,3 +13,11 @@ My professional experience is primarily from working as an athletic trainer at P
 ### Education
 
 I graduated with a degree in Kinesiology from the University of Illinois at Urbana-Champaign. Go Illini!
+
+### Certifactions
+
+I hold the following certifications
+
+* CPR, Red Cross
+* ACSM Certified Personal Trainer, American College of Sports Medicine
+* ACE Certified Personal Trainger, American Council on Exercise
