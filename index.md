@@ -26,6 +26,14 @@ I hold the following certifications
 * ACSM Certified Personal Trainer, American College of Sports Medicine
 * ACE Certified Personal Trainger, American Council on Exercise
 
+### Nutrition Tips
+
+Here are some nutrition tips I recommend:
+* Build up your diet from fruits and vegetables
+* Buy frozen fruits and vegetables to save on money and so they don't go bad
+* Eliminate regular soda consumption and heavily reduce the use of beverages with added sugar
+
+
 ### Personal
 #### Music
 Here are some of my favorite artists
