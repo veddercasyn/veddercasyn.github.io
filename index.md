@@ -21,7 +21,7 @@ I was involved with the following organizations:
 
 ### Certifications
 
-I hold the following certifications
+I hold the following certifications:
 * CPR, Red Cross
 * ACSM Certified Personal Trainer, American College of Sports Medicine
 * ACE Certified Personal Trainger, American Council on Exercise
@@ -39,18 +39,18 @@ Here are some nutrition tips I recommend:
 
 ### Personal
 #### Music
-Here are some of my favorite artists
+Here are some of my favorite artists:
 * Bruno Mars 
 * Taylor Swift
 * Imagine Dragons
 * Ashe
 
 #### Movies
-Some of my older favorites
+Some of my older favorites:
 * Forrest Gump
 * Shawshank Redemption
 
-Some of my newer favorites
+Some of my newer favorites:
 * Spotlight
 * Black Panther 
 * Parasite
@@ -60,7 +60,7 @@ I enjoy Ark Survival Evolved, it's cool to interact with dinosaurs!
 I used to enjoy Battlefield 3 and Halo Reach. 
 
 #### Podcasts
-Some of my favorite podcasts I enjoy
+Some of my favorite podcasts I enjoy:
 * Freakonomics
 * Hot Takedown
 * Thinking Nutrition 
