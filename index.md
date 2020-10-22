@@ -33,3 +33,6 @@ Here are some of my favorite artists
 * Taylor Swift
 * Imagine Dragons
 * Ashe
+## Life
+Love spending time here!
+![Image](https://i.imgur.com/uTHNQT2.png)
