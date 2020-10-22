@@ -59,4 +59,4 @@ I don't get to go here often, but I love it when I can!
 
 #### Reaching Out
 I'm available on [Twitter](https://twitter.com/veddercasyn) and [LinkedIn](https://www.linkedin.com/in/vedder-casyn/).
-If you want to schedule a session, shoot me an email at veddercasyn@gmail.com!
+If you want to schedule a session, shoot me an email at veddercasyn@gmail.com or contact nine two nine two four nine four zero one eight!
