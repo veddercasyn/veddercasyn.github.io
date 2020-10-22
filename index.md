@@ -8,7 +8,11 @@ I am located in the Chicagoland area, currently working at a Planet Fitness.
 
 ### Experience
 
-My professional experience is primarily from working as an athletic trainer at Planet Fitness. During college, I worked at one of the school gyms as a personal trainer. I have also done personal sessions with interested clients on the side. 
+My professional experience is primarily from working as an athletic trainer at Planet Fitness. During college, I worked at one of the school gyms as a personal trainer. 
+
+I am an instructor for the Red Cross in CPR and AED. 
+
+I have also done personal sessions with interested clients on the side. 
 
 ### Education
 
