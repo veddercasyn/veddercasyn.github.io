@@ -8,7 +8,7 @@ I am located in the Chicagoland area, currently working at a Planet Fitness.
 
 ### Experience
 
-My professional experience is primarily from working as an athletic trainer at Planet Fitness. During college, I worked at one of the gyms as a personal trainer. I have also done personal sessions with interested clients on the side. 
+My professional experience is primarily from working as an athletic trainer at Planet Fitness. During college, I worked at one of the school gyms as a personal trainer. I have also done personal sessions with interested clients on the side. 
 
 ### Education
 
@@ -27,23 +27,23 @@ I hold the following certifications
 * ACE Certified Personal Trainger, American Council on Exercise
 
 ### Personal
-## Music
+#### Music
 Here are some of my favorite artists
 * Bruno Mars 
 * Taylor Swift
 * Imagine Dragons
 * Ashe
 
-## Movies
+#### Movies
 Some of my older favorites
 * Forrest Gump
 * Shawshank Redemption 
 
-## Games
+#### Games
 I enjoy Ark Survival Evolved, it's cool to interact with dinosaurs!
 I used to enjoy Battlefield 3 and Halo Reach. 
 
-## Life
+#### Life
 I don't get to go here often, but I love it when I can!
 ![Image](https://i.imgur.com/mjK4mwz.png)
 
