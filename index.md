@@ -33,9 +33,16 @@ Here are some of my favorite artists
 * Taylor Swift
 * Imagine Dragons
 * Ashe
+
+## Movies
+Some of my older favorites
+* Forrest Gump
+* Shawshank Redemption 
+
 ## Games
 I enjoy Ark Survival Evolved, it's cool to interact with dinosaurs!
 I used to enjoy Battlefield 3 and Halo Reach. 
+
 ## Life
 I don't get to go here often, but I love it when I can!
 ![Image](https://i.imgur.com/mjK4mwz.png)
