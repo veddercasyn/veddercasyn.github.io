@@ -52,6 +52,7 @@ I used to enjoy Battlefield 3 and Halo Reach.
 Some of my favorite podcasts I enjoy
 * Freakonomics
 * Hot Takedown
+
 #### Life
 I don't get to go here often, but I love it when I can!
 ![Image](https://i.imgur.com/mjK4mwz.png)
