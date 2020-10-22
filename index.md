@@ -31,5 +31,5 @@ I hold the following certifications
 Here are some of my favorite artists
 * Bruno Mars 
 * Taylor Swift
-* Imagine 
+* Imagine Dragons
 * Ashe
