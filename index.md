@@ -38,6 +38,7 @@ Here are some of my favorite artists
 Some of my older favorites
 * Forrest Gump
 * Shawshank Redemption
+
 Some of my newer favorites
 * Spotlight
 * Black Panther 
