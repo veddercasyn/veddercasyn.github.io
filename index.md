@@ -34,5 +34,5 @@ Here are some of my favorite artists
 * Imagine Dragons
 * Ashe
 ## Life
-Love spending time here!
-![Image](https://i.imgur.com/uTHNQT2.png)
+I don't get to go here often, but I love it when I can!
+![Image](https://i.imgur.com/mjK4mwz.png)
