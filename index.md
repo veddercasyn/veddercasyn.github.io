@@ -43,6 +43,7 @@ Some of my newer favorites
 * Spotlight
 * Black Panther 
 * Parasite
+
 #### Games
 I enjoy Ark Survival Evolved, it's cool to interact with dinosaurs!
 I used to enjoy Battlefield 3 and Halo Reach. 
