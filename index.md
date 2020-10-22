@@ -47,6 +47,10 @@ Some of my newer favorites
 I enjoy Ark Survival Evolved, it's cool to interact with dinosaurs!
 I used to enjoy Battlefield 3 and Halo Reach. 
 
+#### Podcasts
+Some of my favorite podcasts I enjoy
+* Freakonomics
+
 #### Life
 I don't get to go here often, but I love it when I can!
 ![Image](https://i.imgur.com/mjK4mwz.png)
