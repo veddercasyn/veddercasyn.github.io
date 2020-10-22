@@ -37,8 +37,11 @@ Here are some of my favorite artists
 #### Movies
 Some of my older favorites
 * Forrest Gump
-* Shawshank Redemption 
-
+* Shawshank Redemption
+Some of my newer favorites
+* Spotlight
+* Black Panther 
+* Parasite
 #### Games
 I enjoy Ark Survival Evolved, it's cool to interact with dinosaurs!
 I used to enjoy Battlefield 3 and Halo Reach. 
