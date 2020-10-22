@@ -35,6 +35,7 @@ Here are some nutrition tips I recommend:
 * Create a meal plan that has meals you enjoy and that are easy to prepare
 * Prepare meals in bulk so you save time on cooking
 * Make use of smoothies, they can pack a ton of vegetables and fruit in one beverage
+* Make use of proteins such as salmon, chicken, beans, and nuts 
 
 ### Personal
 #### Music
