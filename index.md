@@ -12,7 +12,7 @@ My professional experience is primarily from working as an athletic trainer at P
 
 ### Education
 
-I graduated with a degree in Kinesiology from the University of Illinois at Urbana-Champaign in 2011. Go Illini!
+I graduated with a degree in Kinesiology from the University of Illinois at Urbana-Champaign in 2010. Go Illini!
 
 I was involved with the following organizations:
 * Delta Tau Delta
